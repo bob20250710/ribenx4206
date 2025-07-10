@@ -16,4 +16,4 @@
 
 技术和内容的结合，使得这些平台能够在激烈的竞争中脱颖而出，不仅满足用户的需求，还通过合理的SEO策略，提升自然流量和平台曝光度。
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link]( https://github.com/bob20250710/ribenx4206 ）</span>
